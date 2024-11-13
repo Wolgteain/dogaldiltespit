@@ -1,0 +1,2 @@
+# dogaldiltespit
+yazılım
